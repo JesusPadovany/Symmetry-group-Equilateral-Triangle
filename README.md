@@ -1,0 +1,1 @@
+# Symmetry-Group-Equilateral-Triangle
